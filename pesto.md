@@ -5,5 +5,5 @@
 * Pepper
 * Olive oil
 
-* Mix everything and smash it together
+* Mix everything except salt and pepper and smash it together
 * Season to taste
