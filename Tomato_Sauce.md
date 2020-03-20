@@ -1,7 +1,7 @@
 # Tomato Sauce
 ## Ingredients
 * Chopped Tomatoes
-* Olive Oil
+* Lots of Extra Virgin Olive Oil
 * Onion
 * Garlic
 * Salt and Pepper
