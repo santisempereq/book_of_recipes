@@ -1,5 +1,5 @@
 * Bunch of Basil
-* 50g of Pine nuts
+* 100g of Pine nuts
 * Garlic
 * Salt 
 * Pepper
